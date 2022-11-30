@@ -1,1 +1,0 @@
-# ketatasalem.github.io
